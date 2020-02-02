@@ -1,0 +1,1 @@
+These presentations, unless otherwise stated, are made available under the Attribution 4.0 International (CC BY 4.0). To learn more about the license please visit https://creativecommons.org/licenses/by/4.0/.
